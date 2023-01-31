@@ -12,6 +12,6 @@ _Also I negotiate with potential customers, doing price and contract condition c
 
 <span style="color:red">Tariffs calculations, implementation 5S system in acting production, company budgeting participation, budget execution, work with KPI system, LEAN production, sales of used mashinery is my responsibility as well</span>.
 
-![IMG-20211231-WA0001.jpg](https://drive.google.com/file/d/1HMdl9t5KbH0eILfDm1zZ0puSP3zJxBTR/view?usp=sharing)
+![](/IMG-20211231-WA0001.jpg)
 
 
